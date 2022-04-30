@@ -1,7 +1,7 @@
 
 # nanoya's very cool skins
-# Keep in mind some of the skins nanoya uses are either a WIP or private 
-If any of the links dont work dm NeKko#4651 on discord
+# Keep in mind some of the skin elements that nanoya uses might not be included here
+If any of the links dont work or if the list is outdated dm NeKko#4651 on discord
 
 # [- nanoya_ganyu](https://mega.nz/file/5AQ0EKyC#3D8EYyknQhhPYSXDnnqQPk5pGFXVhAYTHBGHaOqepuw) 
 ![](https://i.imgur.com/OeTSF4r.jpg)

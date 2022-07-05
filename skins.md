@@ -3,6 +3,8 @@
 # Keep in mind some of the skin elements that nanoya uses might not be included here
 If any of the links dont work or if the list is outdated dm NeKko#4651 on discord
 
+# [ও Satono Diamond Mastasz ও](https://nanoya.s-ul.eu/mopW3etZ)
+![](https://i.imgur.com/riohIa5.jpg)
 # [ও Satono Diamond varv ও](https://nanoya.s-ul.eu/HHAHw1gq)
 ![](https://imgur.com/CPBwx2V.jpg)
 # [ও Satono Diamond DT ও](https://nanoya.s-ul.eu/9e6bf7ej)
